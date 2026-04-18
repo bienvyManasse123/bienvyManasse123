@@ -26,7 +26,7 @@ Je construis des architectures robustes, automatise le futur avec le DevOps et e
 
 ### 📫 Me contacter
 - 📧 Email : [bienvenue.emailmsg@gmail.com](mailto:bienvenue.emailmsg@gmail.com)
-- 💼 LinkedIn : [bienvyManasse123](https://linkedin.com)
+- 💼 LinkedIn : [bienvyManasse123](https://linkedin.com/in/bienvyManasse123)
 
 ---
 
